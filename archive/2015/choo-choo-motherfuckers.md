@@ -5,6 +5,8 @@ author: ""
 categories: "Картинки и инфографика, Россия"
 tags: ""
 slug: "choo-choo-motherfuckers"
+n: 40163
+canonical: "https://sputnikipogrom.net/pics/40163/choo-choo-motherfuckers/"
 ---
 
-Известный среди прогрессивной общественности отец журнала «Афиша» Юрий Сапрыкин пугает на своих лекциях либеральных журналистов «Спутником и Погромом». Напоминаем, что еще больше напугать Сапрыкина, оформив подписку, можно и нужно тут :
+[![sap-quote-v2](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/sap-quote-v2.jpg)](https://sputnikipogrom.net/faq/)

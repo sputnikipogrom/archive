@@ -5,6 +5,8 @@ author: ""
 categories: "История, Картинки и инфографика, Россия"
 tags: ""
 slug: "silhouettes-of-war"
+n: 22507
+canonical: "https://sputnikipogrom.net/pics/22507/silhouettes-of-war/"
 ---
 
-
+![](https://media.sputnikipogrom.net/wp-content/uploads/2014/10/sons.jpg)

@@ -5,6 +5,8 @@ author: ""
 categories: "Картинки и инфографика, Малороссия, Политика, Россия"
 tags: ""
 slug: "please-help-our-ukranian-friends"
+n: 17817
+canonical: "https://sputnikipogrom.net/politics/17817/please-help-our-ukranian-friends/"
 ---
 
-
+От этого материала не сохранилось ничего, кроме заголовка, даты и рубрики. В снимках веб-архива по его адресу уцелели только служебные части страницы; ни текста, ни собственных иллюстраций в них нет.

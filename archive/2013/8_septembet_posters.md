@@ -5,6 +5,8 @@ author: ""
 categories: "Картинки и инфографика, Политика, Россия"
 tags: ""
 slug: "8_septembet_posters"
+n: 4495
+canonical: "https://sputnikipogrom.net/politics/4495/8_septembet_posters/"
 ---
 
-
+![](https://media.sputnikipogrom.net/wp-content/uploads/2013/09/ban.jpg)

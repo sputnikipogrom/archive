@@ -5,6 +5,8 @@ author: ""
 categories: "Политика, Россия"
 tags: ""
 slug: "pugachov_mother"
+n: 3234
+canonical: "https://sputnikipogrom.net/russia/3234/pugachov_mother/"
 ---
 
-Видеозапись во внешнем проигрывателе: https://www.youtube.com/watch?v=H58IGUaa7lg
+Видеозапись во внешнем проигрывателе: [youtube.com/watch?v=H58IGUaa7lg](https://www.youtube.com/watch?v=H58IGUaa7lg)

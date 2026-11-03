@@ -5,6 +5,8 @@ author: ""
 categories: "Картинки и инфографика, Политика, Россия"
 tags: ""
 slug: "bishkk-support-for-russian-liberals"
+n: 6671
+canonical: "https://sputnikipogrom.net/russia/6671/bishkk-support-for-russian-liberals/"
 ---
 
-
+От этого материала не сохранилось ничего, кроме заголовка, даты и рубрики. В снимках веб-архива по его адресу уцелели только служебные части страницы; ни текста, ни собственных иллюстраций в них нет.

@@ -5,6 +5,8 @@ author: ""
 categories: "Картинки и инфографика, Общество, Россия, СМИ"
 tags: ""
 slug: "putins-little-helper"
+n: 24885
+canonical: "https://sputnikipogrom.net/media/24885/putins-little-helper/"
 ---
 
-
+![](https://media.sputnikipogrom.net/wp-content/uploads/2014/12/left-banner-v1.png)

@@ -5,6 +5,29 @@ author: ""
 categories: "Культура, США"
 tags: ""
 slug: "closethedoor"
+n: 1659
+canonical: "https://sputnikipogrom.net/usa/1659/closethedoor/"
 ---
 
-Как только что стало известно, в Германии скончался Рэй Манзарек, клавишник The Doors, величайшей рок-группы в истории Земли. Манзареку было 74 года, он умер в клинике в Германии, в окружении своей семьи. Рак. Именно электоорган и басовое электропианино Манзарека дикую, фантастическую, вакхическую поэзию Моррисона завершали, закругляли камлания Моррисона, превращая их за счет прорывающегося «церковного» звучания в черные проповеди. Без отчаянного экспериментирования Манзарека The Doors не имели бы того любимого узнаваемого «призрачного» звучания (как будто этот рок играют в реальности духов, а мы слышим лишь отзвуки), моментально выделяющего их из всей остальной рок-музыки. Думаю, можно сказать, что без Манзарека The Doors не стали бы тем жутким и восхитительным феноменом, оставшись на уровне стандартного рок-звучания. Видеозапись во внешнем проигрывателе: https://www.youtube.com/watch?v=m2kkaJWeFWo P.S. Нас часто спрашивают, что означает «Спутник и Погром», и мы часто отвечаем, что это синтез аполлонического и дионисического начал. И The Celebration of the Lizard, эпическая 17-ти минутная поэма Моррисона, то читающего стихи, то переходящего на шепот, а то взрываюшегося мескалиновой яростью (с великолепной клавишной работой Манзарека!) — это, несомненно, одно из ярчайших выражений дионисического буйства pogroma. Идеальная музыка для ждущей ночи, в которую от нас ушел Манзарек. Once I had, a little game I liked to crawl back into my brain I think you know the game I mean I mean the game called ’go insane’ Now you should try this little game Just close your eyes forget your name Forget the world forget the people And we’ll erect a different steeple This little game is fun to do Just close your eyes no way to lose And I’m right there I’m going too Release control we’re breaking thru
+[![mutxx221x2zvumx2_0](https://media.sputnikipogrom.net/wp-content/uploads/2013/05/mutxx221x2zvumx2_0.jpg)](https://media.sputnikipogrom.net/wp-content/uploads/2013/05/mutxx221x2zvumx2_0.jpg)
+
+Как только что стало известно, в Германии скончался Рэй Манзарек, клавишник The Doors, величайшей рок-группы в истории Земли. Манзареку было 74 года, он умер в клинике в Германии, в окружении своей семьи. Рак. Именно электоорган и басовое электропианино Манзарека дикую, фантастическую, вакхическую поэзию Моррисона завершали, закругляли камлания Моррисона, превращая их за счет прорывающегося «церковного» звучания в черные проповеди. Без отчаянного экспериментирования Манзарека The Doors не имели бы того любимого узнаваемого «призрачного» звучания (как будто этот рок играют в реальности духов, а мы слышим лишь отзвуки), моментально выделяющего их из всей остальной рок-музыки. Думаю, можно сказать, что без Манзарека The Doors не стали бы тем жутким и восхитительным феноменом, оставшись на уровне стандартного рок-звучания.
+
+Покойся с миром, неистовый Рэй!
+
+Видеозапись во внешнем проигрывателе: [youtube.com/watch?v=m2kkaJWeFWo](https://www.youtube.com/watch?v=m2kkaJWeFWo)
+
+P.S. Нас часто спрашивают, что означает «Спутник и Погром», и мы часто отвечаем, что это синтез аполлонического и дионисического начал. И The Celebration of the Lizard, эпическая 17-ти минутная поэма Моррисона, то читающего стихи, то переходящего на шепот, а то взрываюшегося мескалиновой яростью (с великолепной клавишной работой Манзарека!) — это, несомненно, одно из ярчайших выражений дионисического буйства pogroma. Идеальная музыка для ждущей ночи, в которую от нас ушел Манзарек.
+
+*Once I had, a little game  
+ I liked to crawl back into my brain  
+ I think you know the game I mean  
+ I mean the game called ’go insane’  
+ Now you should try this little game  
+ Just close your eyes forget your name  
+ Forget the world forget the people  
+ And we’ll erect a different steeple  
+ This little game is fun to do  
+ Just close your eyes no way to lose  
+ And I’m right there I’m going too  
+ Release control we’re breaking thru*

@@ -5,6 +5,10 @@ author: ""
 categories: "Картинки и инфографика, Россия"
 tags: ""
 slug: "rus-moscow"
+n: 63246
+canonical: "https://sputnikipogrom.net/pics/63246/rus-moscow/"
 ---
 
 Сегодня — День русской Москвы. 6 лет назад, 11 декабря 2010 года, под стены Кремля на митинг памяти по убитому кавказцами Егору Свиридову вышли тысячи русских.
+
+![mp-cover](https://media.sputnikipogrom.net/wp-content/uploads/2016/12/mp-cover.jpg)

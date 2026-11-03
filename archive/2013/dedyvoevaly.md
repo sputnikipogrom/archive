@@ -5,6 +5,8 @@ author: ""
 categories: "Картинки и инфографика, Россия"
 tags: ""
 slug: "dedyvoevaly"
+n: 1459
+canonical: "https://sputnikipogrom.net/russia/1459/dedyvoevaly/"
 ---
 
-
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/fundbanner1.jpg)

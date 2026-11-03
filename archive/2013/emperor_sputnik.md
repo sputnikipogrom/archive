@@ -5,6 +5,10 @@ author: ""
 categories: "Картинки и инфографика, Россия"
 tags: ""
 slug: "emperor_sputnik"
+n: 5643
+canonical: "https://sputnikipogrom.net/russia/5643/emperor_sputnik/"
 ---
 
-Хорошо быть императором! http://sputnikipogrom.com/premium/
+Хорошо быть императором! [/premium/](https://sputnikipogrom.net/premium/)
+
+От этого материала не сохранилось ничего, кроме заголовка, даты и рубрики. В снимках веб-архива по его адресу уцелели только служебные части страницы; ни текста, ни собственных иллюстраций в них нет.

@@ -5,6 +5,8 @@ author: ""
 categories: "Картинки и инфографика, Россия, СМИ"
 tags: ""
 slug: "best-political-design"
+n: 24238
+canonical: "https://sputnikipogrom.net/pics/24238/best-political-design/"
 ---
 
-Подробная инструкция о том, как подписаться, если у вас нет платежной карты.
+![](https://media.sputnikipogrom.net/docs/giftx.jpg)

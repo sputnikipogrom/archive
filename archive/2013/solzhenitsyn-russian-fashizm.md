@@ -5,6 +5,8 @@ author: ""
 categories: "Картинки и инфографика, Политика, Россия"
 tags: ""
 slug: "solzhenitsyn-russian-fashizm"
+n: 7154
+canonical: "https://sputnikipogrom.net/russia/7154/solzhenitsyn-russian-fashizm/"
 ---
 
-
+От этого материала не сохранилось ничего, кроме заголовка, даты и рубрики. В снимках веб-архива по его адресу уцелели только служебные части страницы; ни текста, ни собственных иллюстраций в них нет.

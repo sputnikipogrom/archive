@@ -5,6 +5,8 @@ author: ""
 categories: "Новороссия"
 tags: ""
 slug: "heroes-of-donbass"
+n: 12809
+canonical: "https://sputnikipogrom.net/russia/novorossiya/12809/heroes-of-donbass/"
 ---
 
-
+![](https://media.sputnikipogrom.net/wp-content/uploads/2014/03/sputnikforever0.jpg)

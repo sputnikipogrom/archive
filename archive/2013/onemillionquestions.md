@@ -5,6 +5,8 @@ author: ""
 categories: "Видео, Политика, Россия"
 tags: ""
 slug: "onemillionquestions"
+n: 406
+canonical: "https://sputnikipogrom.net/russia/406/onemillionquestions/"
 ---
 
-Видеозапись во внешнем проигрывателе: https://www.youtube.com/watch?v=t1R0zlZR148
+Видеозапись во внешнем проигрывателе: [youtube.com/watch?v=t1R0zlZR148](https://www.youtube.com/watch?v=t1R0zlZR148)

@@ -5,6 +5,8 @@ author: ""
 categories: "Картинки и инфографика, Политика, Россия"
 tags: ""
 slug: "the-future-of-russian-federation"
+n: 7295
+canonical: "https://sputnikipogrom.net/russia/7295/the-future-of-russian-federation/"
 ---
 
-
+От этого материала не сохранилось ничего, кроме заголовка, даты и рубрики. В снимках веб-архива по его адресу уцелели только служебные части страницы; ни текста, ни собственных иллюстраций в них нет.
