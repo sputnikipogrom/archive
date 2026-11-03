@@ -25,31 +25,57 @@ canonical: "https://sputnikipogrom.net/pics/32077/zodchii-1/"
 
 Конкурсъ проектовъ зданiя музея Оренбургскаго края въ г. Оренбургѣ. I премiя. 1/4
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod2.jpg)   
- Конкурсъ проектовъ зданiя музея Оренбургскаго края въ г. Оренбургѣ. II премiя. 2/4
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod2.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod3.jpg)   
- Конкурсъ проектовъ зданiя музея Оренбургскаго края въ г. Оренбургѣ. Iпремiя. 3/4
+Конкурсъ проектовъ зданiя музея Оренбургскаго края въ г. Оренбургѣ. II премiя. 2/4
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod4.jpg)   
- Конкурсъ проектовъ зданiя музея Оренбургскаго края въ г. Оренбургѣ. Iпремiя. 4/4
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod3.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod5.jpg)   
- Конкурсные проекты зданiя Центральных Установленiй Министерства Торговли и Промышленности въ С.-Петербургѣ. 1/7
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod6.jpg)   
- Конкурсные проекты зданiя Центральных Установленiй Министерства Торговли и Промышленности въ С.-Петербургѣ. 2/7
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod7.jpg)   
- Конкурсные проекты зданiя Центральных Установленiй Министерства Торговли и Промышленности въ С.-Петербургѣ. 3/7
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod8.jpg)   
- Конкурсные проекты зданiя Центральных Установленiй Министерства Торговли и Промышленности въ С.-Петербургѣ. 4/7
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod9.jpg)   
- Конкурсные проекты зданiя Центральных Установленiй Министерства Торговли и Промышленности въ С.-Петербургѣ. 5/7
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod10.jpg)   
- Конкурсные проекты зданiя Центральных Установленiй Министерства Торговли и Промышленности въ С.-Петербургѣ. 6/7
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod11.jpg)   
- Конкурсные проекты зданiя Центральных Установленiй Министерства Торговли и Промышленности въ С.-Петербургѣ. 7/7 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod12.jpg) Проектъ фельдшерскаго училища въ Николаевѣ для Черноморскаго флота ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod13.jpg) Училищный домъ имени Петра Великаго въ С.-Петербургѣ. 1/2
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod14.jpg)   
- Училищный домъ имени Петра Великаго въ С.-Петербургѣ. 2/2
+Конкурсъ проектовъ зданiя музея Оренбургскаго края въ г. Оренбургѣ. Iпремiя. 3/4
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod4.jpg)
+
+Конкурсъ проектовъ зданiя музея Оренбургскаго края въ г. Оренбургѣ. Iпремiя. 4/4
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod5.jpg)
+
+Конкурсные проекты зданiя Центральных Установленiй Министерства Торговли и Промышленности въ С.-Петербургѣ. 1/7
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod6.jpg)
+
+Конкурсные проекты зданiя Центральных Установленiй Министерства Торговли и Промышленности въ С.-Петербургѣ. 2/7
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod7.jpg)
+
+Конкурсные проекты зданiя Центральных Установленiй Министерства Торговли и Промышленности въ С.-Петербургѣ. 3/7
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod8.jpg)
+
+Конкурсные проекты зданiя Центральных Установленiй Министерства Торговли и Промышленности въ С.-Петербургѣ. 4/7
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod9.jpg)
+
+Конкурсные проекты зданiя Центральных Установленiй Министерства Торговли и Промышленности въ С.-Петербургѣ. 5/7
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod10.jpg)
+
+Конкурсные проекты зданiя Центральных Установленiй Министерства Торговли и Промышленности въ С.-Петербургѣ. 6/7
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod11.jpg)
+
+Конкурсные проекты зданiя Центральных Установленiй Министерства Торговли и Промышленности въ С.-Петербургѣ. 7/7
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod12.jpg)
+
+Проектъ фельдшерскаго училища въ Николаевѣ для Черноморскаго флота
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod13.jpg)
+
+Училищный домъ имени Петра Великаго въ С.-Петербургѣ. 1/2
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod14.jpg)
+
+Училищный домъ имени Петра Великаго въ С.-Петербургѣ. 2/2
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod15.jpg)
 
@@ -63,8 +89,9 @@ canonical: "https://sputnikipogrom.net/pics/32077/zodchii-1/"
 
 Конкурсные проекты часовни-памятника надъ фамильнымъ склепомъ Кондратьевыхъ на Никольскомъ кладбищѣ въ Александро-Невской Лаврѣ въ С.-Петербургѣ. 1/2
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod18.jpg)   
- Конкурсные проекты часовни-памятника надъ фамильнымъ склепомъ Кондратьевыхъ на Никольскомъ кладбищѣ въ Александро-Невской Лаврѣ въ С.-Петербургѣ. 2/2
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod18.jpg)
+
+Конкурсные проекты часовни-памятника надъ фамильнымъ склепомъ Кондратьевыхъ на Никольскомъ кладбищѣ въ Александро-Невской Лаврѣ въ С.-Петербургѣ. 2/2
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod20.jpg)
 
@@ -78,20 +105,35 @@ canonical: "https://sputnikipogrom.net/pics/32077/zodchii-1/"
 
 Конкурсные проекты зданiя Ильинско-Аннинскаго Убѣжища для бѣднѣйшихъ дворянъ и дворянокъ въ С.-Петербургѣ. 1/2
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod23.jpg)   
- Конкурсные проекты зданiя Ильинско-Аннинскаго Убѣжища для бѣднѣйшихъ дворянъ и дворянокъ въ С.-Петербургѣ. 2/2 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod25.jpg) ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod26.jpg) ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod27.jpg) ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod28.jpg) Конкурсные проекты зданiя синагоги и училища въ С.-Петербургѣ. 1/5
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod23.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod29.jpg)   
- Конкурсные проекты зданiя синагоги и училища въ С.-Петербургѣ. 2/5
+Конкурсные проекты зданiя Ильинско-Аннинскаго Убѣжища для бѣднѣйшихъ дворянъ и дворянокъ въ С.-Петербургѣ. 2/2
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod30.jpg)   
- Конкурсные проекты зданiя синагоги и училища въ С.-Петербургѣ. 3/5
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod25.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod31.jpg)   
- Конкурсные проекты зданiя синагоги и училища въ С.-Петербургѣ. 4/5
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod26.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod32.jpg)   
- Конкурсные проекты зданiя синагоги и училища въ С.-Петербургѣ. 5/5
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod27.jpg)
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod28.jpg)
+
+Конкурсные проекты зданiя синагоги и училища въ С.-Петербургѣ. 1/5
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod29.jpg)
+
+Конкурсные проекты зданiя синагоги и училища въ С.-Петербургѣ. 2/5
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod30.jpg)
+
+Конкурсные проекты зданiя синагоги и училища въ С.-Петербургѣ. 3/5
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod31.jpg)
+
+Конкурсные проекты зданiя синагоги и училища въ С.-Петербургѣ. 4/5
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod32.jpg)
+
+Конкурсные проекты зданiя синагоги и училища въ С.-Петербургѣ. 5/5
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod33.jpg)
 
@@ -101,8 +143,9 @@ canonical: "https://sputnikipogrom.net/pics/32077/zodchii-1/"
 
 Больница для рабочихъ въ память 300-лѣтiя царствованiя Дома Романовыхъ въ Кренгольмѣ (Нарва). 1/2
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod35.jpg)   
- Больница для рабочихъ въ память 300-лѣтiя царствованiя Дома Романовыхъ въ Кренгольмѣ (Нарва). 2/2
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod35.jpg)
+
+Больница для рабочихъ въ память 300-лѣтiя царствованiя Дома Романовыхъ въ Кренгольмѣ (Нарва). 2/2
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod36.jpg)
 
@@ -116,58 +159,105 @@ canonical: "https://sputnikipogrom.net/pics/32077/zodchii-1/"
 
 Конкурсные проекты зданiя городского дома въ г. Царицынѣ. 1/4
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod39.jpg)   
- Конкурсные проекты зданiя городского дома въ г. Царицынѣ. 2/4
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod39.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod40.jpg)   
- Конкурсные проекты зданiя городского дома въ г. Царицынѣ. 3/4
+Конкурсные проекты зданiя городского дома въ г. Царицынѣ. 2/4
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod41.jpg)   
- Конкурсные проекты зданiя городского дома въ г. Царицынѣ. 4/4
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod40.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod42.jpg)   
- Конкурсные проекты доходнаго дома Евангелической женской больницы въ С.-Петербургѣ. 1/4
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod43.jpg)   
- Конкурсные проекты доходнаго дома Евангелической женской больницы въ С.-Петербургѣ. 2/4
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod44.jpg)   
- Конкурсные проекты доходнаго дома Евангелической женской больницы въ С.-Петербургѣ. 3/4
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod45.jpg)   
- Конкурсные проекты доходнаго дома Евангелической женской больницы въ С.-Петербургѣ. 4/4
+Конкурсные проекты зданiя городского дома въ г. Царицынѣ. 3/4
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod46.jpg)   
- Конкурсные проекты зданiя для учрежденiй Переселенческаго Управленiя въ г. Омскѣ, Акмолинской обл. 1/3
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod47.jpg)   
- Конкурсные проекты зданiя для учрежденiй Переселенческаго Управленiя въ г. Омскѣ, Акмолинской обл. 2/3
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod48.jpg)   
- Конкурсные проекты зданiя для учрежденiй Переселенческаго Управленiя въ г. Омскѣ, Акмолинской обл. 3/3
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod41.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod49.jpg)   
- Конкурсные проекты дачи Н. В. Грушецкаго близъ ст. Келломяки, Финл. ж. д.. 1/3
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod50.jpg)   
- Конкурсные проекты дачи Н. В. Грушецкаго близъ ст. Келломяки, Финл. ж. д.. 2/3
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod51.jpg)   
- Конкурсные проекты дачи Н. В. Грушецкаго близъ ст. Келломяки, Финл. ж. д.. 3/3
+Конкурсные проекты зданiя городского дома въ г. Царицынѣ. 4/4
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod52.jpg)   
- Конкурсные проекты убѣжища для престарѣлыхъ неимущихъ дворянъ С.-Петербургской губернiи въ память 300-лѣтiя царствованiя Дома Романовыхъ. 1/3
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod53.jpg)   
- Конкурсные проекты убѣжища для престарѣлыхъ неимущихъ дворянъ С.-Петербургской губернiи въ память 300-лѣтiя царствованiя Дома Романовыхъ. 2/3
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod54.jpg)   
- Конкурсные проекты убѣжища для престарѣлыхъ неимущихъ дворянъ С.-Петербургской губернiи въ память 300-лѣтiя царствованiя Дома Романовыхъ. 3/3
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod42.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod56.jpg)   
- Конкурсные проекты дома Выборгскаго т-ва для устройства постоянныхъ квартиръ въ С.-Петербургѣ. 1/2
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod57.jpg)   
- Конкурсные проекты дома Выборгскаго т-ва для устройства постоянныхъ квартиръ въ С.-Петербургѣ. 2/2
+Конкурсные проекты доходнаго дома Евангелической женской больницы въ С.-Петербургѣ. 1/4
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod58.jpg)   
- Большой дворецъ Его Императорскаго Величества въ имѣнiи «Ливадiя». 1/2
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod59.jpg)   
- Большой дворецъ Его Императорскаго Величества въ имѣнiи «Ливадiя». 2/2 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod62.jpg) Дюльберъ. Дворец Е. И. В. Вел. Кн. Петра Николаевича ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod63.jpg) Хараксъ. Имѣнiе Е. И. В. Вел. Кн. Георгiя Михаиловича ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod64.jpg) Конкурсные проекты клубнаго зданiя Тифлисскаго Собранiя въ г. Тифлисѣ. 1/3
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod65.jpg)   
- Конкурсные проекты клубнаго зданiя Тифлисскаго Собранiя въ г. Тифлисѣ. 2/3
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod66.jpg)   
- Конкурсные проекты клубнаго зданiя Тифлисскаго Собранiя въ г. Тифлисѣ. 3/3
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod43.jpg)
+
+Конкурсные проекты доходнаго дома Евангелической женской больницы въ С.-Петербургѣ. 2/4
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod44.jpg)
+
+Конкурсные проекты доходнаго дома Евангелической женской больницы въ С.-Петербургѣ. 3/4
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod45.jpg)
+
+Конкурсные проекты доходнаго дома Евангелической женской больницы въ С.-Петербургѣ. 4/4
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod46.jpg)
+
+Конкурсные проекты зданiя для учрежденiй Переселенческаго Управленiя въ г. Омскѣ, Акмолинской обл. 1/3
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod47.jpg)
+
+Конкурсные проекты зданiя для учрежденiй Переселенческаго Управленiя въ г. Омскѣ, Акмолинской обл. 2/3
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod48.jpg)
+
+Конкурсные проекты зданiя для учрежденiй Переселенческаго Управленiя въ г. Омскѣ, Акмолинской обл. 3/3
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod49.jpg)
+
+Конкурсные проекты дачи Н. В. Грушецкаго близъ ст. Келломяки, Финл. ж. д.. 1/3
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod50.jpg)
+
+Конкурсные проекты дачи Н. В. Грушецкаго близъ ст. Келломяки, Финл. ж. д.. 2/3
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod51.jpg)
+
+Конкурсные проекты дачи Н. В. Грушецкаго близъ ст. Келломяки, Финл. ж. д.. 3/3
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod52.jpg)
+
+Конкурсные проекты убѣжища для престарѣлыхъ неимущихъ дворянъ С.-Петербургской губернiи въ память 300-лѣтiя царствованiя Дома Романовыхъ. 1/3
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod53.jpg)
+
+Конкурсные проекты убѣжища для престарѣлыхъ неимущихъ дворянъ С.-Петербургской губернiи въ память 300-лѣтiя царствованiя Дома Романовыхъ. 2/3
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod54.jpg)
+
+Конкурсные проекты убѣжища для престарѣлыхъ неимущихъ дворянъ С.-Петербургской губернiи въ память 300-лѣтiя царствованiя Дома Романовыхъ. 3/3
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod56.jpg)
+
+Конкурсные проекты дома Выборгскаго т-ва для устройства постоянныхъ квартиръ въ С.-Петербургѣ. 1/2
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod57.jpg)
+
+Конкурсные проекты дома Выборгскаго т-ва для устройства постоянныхъ квартиръ въ С.-Петербургѣ. 2/2
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod58.jpg)
+
+Большой дворецъ Его Императорскаго Величества въ имѣнiи «Ливадiя». 1/2
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod59.jpg)
+
+Большой дворецъ Его Императорскаго Величества въ имѣнiи «Ливадiя». 2/2
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod62.jpg)
+
+Дюльберъ. Дворец Е. И. В. Вел. Кн. Петра Николаевича
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod63.jpg)
+
+Хараксъ. Имѣнiе Е. И. В. Вел. Кн. Георгiя Михаиловича
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod64.jpg)
+
+Конкурсные проекты клубнаго зданiя Тифлисскаго Собранiя въ г. Тифлисѣ. 1/3
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod65.jpg)
+
+Конкурсные проекты клубнаго зданiя Тифлисскаго Собранiя въ г. Тифлисѣ. 2/3
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod66.jpg)
+
+Конкурсные проекты клубнаго зданiя Тифлисскаго Собранiя въ г. Тифлисѣ. 3/3
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod67.jpg)
 
@@ -177,14 +267,17 @@ canonical: "https://sputnikipogrom.net/pics/32077/zodchii-1/"
 
 Конкурсные проекты дома С.-Петербургскаго Губернскаго Кредитнаго Общества въ С.-Петербургѣ. 1/4
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod75.jpg)   
- Конкурсные проекты дома С.-Петербургскаго Губернскаго Кредитнаго Общества въ С.-Петербургѣ. 2/4
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod75.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod76.jpg)   
- Конкурсные проекты дома С.-Петербургскаго Губернскаго Кредитнаго Общества въ С.-Петербургѣ. 3/4
+Конкурсные проекты дома С.-Петербургскаго Губернскаго Кредитнаго Общества въ С.-Петербургѣ. 2/4
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod77.jpg)   
- Конкурсные проекты дома С.-Петербургскаго Губернскаго Кредитнаго Общества въ С.-Петербургѣ. 4/4
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod76.jpg)
+
+Конкурсные проекты дома С.-Петербургскаго Губернскаго Кредитнаго Общества въ С.-Петербургѣ. 3/4
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/zod77.jpg)
+
+Конкурсные проекты дома С.-Петербургскаго Губернскаго Кредитнаго Общества въ С.-Петербургѣ. 4/4
 
 Для более широкого знакомства с историей русской архитектуры предлагаем вам также прочесть статьи постоянного автора «Спутника и Погрома» [Василия Сырнина](https://sputnikipogrom.net/tag/%D0%B2%D0%B0%D1%81%D0%B8%D0%BB%D0%B8%D0%B9-%D1%81%D1%8B%D1%80%D0%BD%D0%B8%D0%BD/).
 

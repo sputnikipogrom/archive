@@ -85,8 +85,13 @@ canonical: "https://sputnikipogrom.net/culture/44442/zodchii-17/"
 
 Конкурсный проектъ дома для рабочихъ при фабрикѣ Т-ва Россiйско-Американской резиновой Мануфактуры въ С.-Петербургѣ. IV премiя и II премiя
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-32.jpg) Дача К. Г. Востряковой въ г. Кисловодскѣ (Кавказъ)
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-36.png) Дача К. Г. Востряковой въ г. Кисловодскѣ (Кавказъ)
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-32.jpg)
+
+Дача К. Г. Востряковой въ г. Кисловодскѣ (Кавказъ)
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-36.png)
+
+Дача К. Г. Востряковой въ г. Кисловодскѣ (Кавказъ)
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-35.jpg)
 
@@ -100,23 +105,72 @@ canonical: "https://sputnikipogrom.net/culture/44442/zodchii-17/"
 
 Перестройка «Пороховой» башни въ г. Ригѣ
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-42.jpg) Амбулаторiя при Елисаветинской клинической дѣтской больницѣ Вѣдомства Учрежденiй Императрицы Марiи
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-49.png) Амбулаторiя при Елисаветинской клинической дѣтской больницѣ Вѣдомства Учрежденiй Императрицы Марiи
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-42.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-43.jpg) Конкурсный проектъ Вогзала для г. Таганрога
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-45.png) Конкурсный проектъ Вогзала для г. Таганрога
+Амбулаторiя при Елисаветинской клинической дѣтской больницѣ Вѣдомства Учрежденiй Императрицы Марiи
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-44.jpg) Императорское Московское Инженерное Училище Вѣдомства Путей Сообщенiя
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-59.jpg) Императорское Московское Инженерное Училище Вѣдомства Путей Сообщенiя
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-49.png)
+
+Амбулаторiя при Елисаветинской клинической дѣтской больницѣ Вѣдомства Учрежденiй Императрицы Марiи
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-43.jpg)
+
+Конкурсный проектъ Вогзала для г. Таганрога
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-45.png)
+
+Конкурсный проектъ Вогзала для г. Таганрога
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-44.jpg)
+
+Императорское Московское Инженерное Училище Вѣдомства Путей Сообщенiя
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-59.jpg)
+
+Императорское Московское Инженерное Училище Вѣдомства Путей Сообщенiя
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-46.jpg)
 
 Домъ священника и Дiакона при церкви Гусевскихъ фабрикъ Ю. С. Нечаева-Мальцова
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-47.jpg) Зданiе судебныхъ установленiй въ г. Тифлисѣ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-51.jpg) Зданiе судебныхъ установленiй въ г. Тифлисѣ
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-47.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-48.jpg) Церковь «Общества Распространенiя Религiознонравственнаго Просвѣщения въ духѣ Православной Церкви», въ С.-Петербургѣ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-50.jpg) Церковь «Общества Распространенiя Религiознонравственнаго Просвѣщения въ духѣ Православной Церкви», въ С.-Петербургѣ   ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-53.jpg) Богодѣльня при Гусевскихъ фабрикахъ Ю. С. Нечаева-Мальцова и зданiе лабораторiи медицинскаго факультета при Императорскомъ Новороссiйскомъ Университетѣ  ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-55.jpg) Богодѣльня при Гусевскихъ фабрикахъ Ю. С. Нечаева-Мальцова и зданiе лабораторiи медицинскаго факультета при Императорскомъ Новороссiйскомъ Университетѣ  ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-58.jpg) Богодѣльня при Гусевскихъ фабрикахъ Ю. С. Нечаева-Мальцова и зданiе лабораторiи медицинскаго факультета при Императорскомъ Новороссiйскомъ Университетѣ    ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-54.png) Музей Центральнаго училища технического рисованiя барона Штиглица въ С.-Петербургѣ  ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-56.jpg) Музей Центральнаго училища технического рисованiя барона Штиглица въ С.-Петербургѣ  ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-57.png) Музей Центральнаго училища технического рисованiя барона Штиглица въ С.-Петербургѣ      
-  
- /
+Зданiе судебныхъ установленiй въ г. Тифлисѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-51.jpg)
+
+Зданiе судебныхъ установленiй въ г. Тифлисѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-48.jpg)
+
+Церковь «Общества Распространенiя Религiознонравственнаго Просвѣщения въ духѣ Православной Церкви», въ С.-Петербургѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-50.jpg)
+
+Церковь «Общества Распространенiя Религiознонравственнаго Просвѣщения въ духѣ Православной Церкви», въ С.-Петербургѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-53.jpg)
+
+Богодѣльня при Гусевскихъ фабрикахъ Ю. С. Нечаева-Мальцова и зданiе лабораторiи медицинскаго факультета при Императорскомъ Новороссiйскомъ Университетѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-55.jpg)
+
+Богодѣльня при Гусевскихъ фабрикахъ Ю. С. Нечаева-Мальцова и зданiе лабораторiи медицинскаго факультета при Императорскомъ Новороссiйскомъ Университетѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-58.jpg)
+
+Богодѣльня при Гусевскихъ фабрикахъ Ю. С. Нечаева-Мальцова и зданiе лабораторiи медицинскаго факультета при Императорскомъ Новороссiйскомъ Университетѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-54.png)
+
+Музей Центральнаго училища технического рисованiя барона Штиглица въ С.-Петербургѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-56.jpg)
+
+Музей Центральнаго училища технического рисованiя барона Штиглица въ С.-Петербургѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/10/z1897-57.png)
+
+Музей Центральнаго училища технического рисованiя барона Штиглица въ С.-Петербургѣ
+
+/

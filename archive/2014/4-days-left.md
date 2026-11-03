@@ -39,13 +39,21 @@ canonical: "https://sputnikipogrom.net/ww1/16870/4-days-left/"
 
 Манифестанты проходят перекресток Невского и Владимирского проспектов, Санкт-Петербург, 15 (28) июля. *Фото 1/5*
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2014/07/ww1-01-4days-big-4.jpg) Манифестанты у издательства «Вечернее время» (угол Невского проспекта и Садовой улицы). *Фото 2/5*
+![](https://media.sputnikipogrom.net/wp-content/uploads/2014/07/ww1-01-4days-big-4.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2014/07/ww1-01-4days-big-5.jpg) Манифестанты проходят по Невскому проспекту у Екатерининского канала. *Фото 3/5*
+Манифестанты у издательства «Вечернее время» (угол Невского проспекта и Садовой улицы). *Фото 2/5*
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2014/07/ww1-01-4days-big-6.jpg) Манифестанты на Невском проспекте у Екатерининского сквера. *Фото 4/5*
+![](https://media.sputnikipogrom.net/wp-content/uploads/2014/07/ww1-01-4days-big-5.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2014/07/ww1-01-4days-big-7.jpg) Манифестанты у Гостиного двора (угол Невского проспекта и Садовой улицы). *Фото 5/5*
+Манифестанты проходят по Невскому проспекту у Екатерининского канала. *Фото 3/5*
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2014/07/ww1-01-4days-big-6.jpg)
+
+Манифестанты на Невском проспекте у Екатерининского сквера. *Фото 4/5*
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2014/07/ww1-01-4days-big-7.jpg)
+
+Манифестанты у Гостиного двора (угол Невского проспекта и Садовой улицы). *Фото 5/5*
 
 Давно на улицах Петербурга не было такого оживления среди дня. Давно так не интересовались вечерними газетами…
 

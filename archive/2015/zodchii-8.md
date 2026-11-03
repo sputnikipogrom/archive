@@ -21,50 +21,77 @@ canonical: "https://sputnikipogrom.net/pics/38622/zodchii-8/"
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-01.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-04.jpg)  
- Конкурсный проектъ зданiя Черниговской губернской земской управы.
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-05.jpg)  
- Конкурсный проектъ зданiя Черниговской губернской земской управы.
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-04.jpg)
+
+Конкурсный проектъ зданiя Черниговской губернской земской управы.
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-05.jpg)
+
+Конкурсный проектъ зданiя Черниговской губернской земской управы.
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-06.jpg)
 
 Видъ таблинума въ домѣ Ливiи на Палатинѣ
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-07.jpg)  
- Церкви
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-07.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-19.jpg)  
- Конкурсные проекты Казанского коммерческаго училища
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-20.jpg)  
- Конкурсные проекты Казанского коммерческаго училища
+Церкви
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-29.jpg)  
- Проектъ театра премированный на конкурсѣ Имп. Спб. общества архитекторовъ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-30.jpg)  
- Проектъ театра премированный на конкурсѣ Имп. Спб. общества архитекторовъ
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-19.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-31.jpg)  
- Проектъ часовни при Храмѣ Божьей Матери всѣхъ скорбящихъ радости
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-32.jpg)  
- Проектъ часовни при Храмѣ Божьей Матери всѣхъ скорбящихъ радости
+Конкурсные проекты Казанского коммерческаго училища
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-34.jpg)  
- Конкурсный проектъ зданiя Государственной Думы
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-35.jpg)  
- Конкурсный проектъ зданiя Государственной Думы
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-36.jpg)  
- Конкурсный проектъ зданiя Государственной Думы
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-37.jpg)  
- Конкурсный проектъ зданiя Государственной Думы
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-38.jpg)  
- Конкурсный проектъ зданiя Государственной Думы
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-39.jpg)  
- Конкурсный проектъ зданiя Государственной Думы
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-20.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-40.jpg)  
- Конкурсные проекты зданiя женской гимназiи въ г. Либавѣ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-41.jpg)  
- Конкурсные проекты зданiя женской гимназiи въ г. Либавѣ
+Конкурсные проекты Казанского коммерческаго училища
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-29.jpg)
+
+Проектъ театра премированный на конкурсѣ Имп. Спб. общества архитекторовъ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-30.jpg)
+
+Проектъ театра премированный на конкурсѣ Имп. Спб. общества архитекторовъ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-31.jpg)
+
+Проектъ часовни при Храмѣ Божьей Матери всѣхъ скорбящихъ радости
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-32.jpg)
+
+Проектъ часовни при Храмѣ Божьей Матери всѣхъ скорбящихъ радости
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-34.jpg)
+
+Конкурсный проектъ зданiя Государственной Думы
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-35.jpg)
+
+Конкурсный проектъ зданiя Государственной Думы
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-36.jpg)
+
+Конкурсный проектъ зданiя Государственной Думы
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-37.jpg)
+
+Конкурсный проектъ зданiя Государственной Думы
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-38.jpg)
+
+Конкурсный проектъ зданiя Государственной Думы
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-39.jpg)
+
+Конкурсный проектъ зданiя Государственной Думы
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-40.jpg)
+
+Конкурсные проекты зданiя женской гимназiи въ г. Либавѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-41.jpg)
+
+Конкурсные проекты зданiя женской гимназiи въ г. Либавѣ
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-42.jpg)
 
@@ -72,8 +99,9 @@ canonical: "https://sputnikipogrom.net/pics/38622/zodchii-8/"
 
 Церковь во имя Алексѣя человѣка Божiя на Петербургской сторонѣ въ С.-Петербургѣ на 1500 чел.
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-44.jpg)  
- Домъ компанiи Зингеръ
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-44.jpg)
+
+Домъ компанiи Зингеръ
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-47.jpg)
 
@@ -87,14 +115,21 @@ canonical: "https://sputnikipogrom.net/pics/38622/zodchii-8/"
 
 Домъ Общества религiозно-нравственнаго просвѣщенiя въ духѣ православной церкви на Стремянной ул. въ С.-Петербургѣ
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-52.jpg)  
- Императорскiй клиническiй повивально-гинекологическiй институтъ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-54.jpg)  
- Императорскiй клиническiй повивально-гинекологическiй институтъ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-55.jpg)  
- Императорскiй клиническiй повивально-гинекологическiй институтъ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-56.jpg)  
- Императорскiй клиническiй повивально-гинекологическiй институтъ
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-52.jpg)
+
+Императорскiй клиническiй повивально-гинекологическiй институтъ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-54.jpg)
+
+Императорскiй клиническiй повивально-гинекологическiй институтъ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-55.jpg)
+
+Императорскiй клиническiй повивально-гинекологическiй институтъ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-56.jpg)
+
+Императорскiй клиническiй повивально-гинекологическiй институтъ
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1906-58.jpg)
 

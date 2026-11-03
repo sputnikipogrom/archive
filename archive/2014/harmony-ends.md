@@ -99,7 +99,7 @@ canonical: "https://sputnikipogrom.net/culture/18586/harmony-ends/"
 
 *«Прощание славянки» в исполнении Кустурицы*
 
-- Видеозапись во внешнем проигрывателе: [youtube.com/watch?v=r24RIkgQjJI](https://www.youtube.com/watch?v=r24RIkgQjJI)
+Видеозапись во внешнем проигрывателе: [youtube.com/watch?v=r24RIkgQjJI](https://www.youtube.com/watch?v=r24RIkgQjJI)
 
 С
 

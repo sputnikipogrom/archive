@@ -65,8 +65,9 @@ canonical: "https://sputnikipogrom.net/2015-in-review/48901/battle-of-2015/"
 
 Эвакуация населения Углегорска ополчением
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/12/deb4xx.jpg)  
- Окраина Углегорска возле улицы Чайковского. Уничтоженное украинское орудие
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/12/deb4xx.jpg)
+
+Окраина Углегорска возле улицы Чайковского. Уничтоженное украинское орудие
 
 В разгар боев в Углегорск приехал Александр Захарченко. Появление лидера ДНР на поле боя произвело достаточно сильное впечатление, особенно в свете бодрых сообщений украинской прессы об отбитых атаках «террористов».
 
@@ -168,23 +169,29 @@ canonical: "https://sputnikipogrom.net/2015-in-review/48901/battle-of-2015/"
 
 Знаменитый фоторепортаж из Дебальцево. Фото: [Max Avdeev](http://maxavdeev.com/) / [Buzzfeed](http://buzzfeed.com)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/12/deb12-1.jpg)  
- Знаменитый фоторепортаж из Дебальцево. Фото: [Max Avdeev](http://maxavdeev.com/) / [Buzzfeed](http://buzzfeed.com)
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/12/deb12-1.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/12/deb12-2.jpg)  
- Знаменитый фоторепортаж из Дебальцево. Фото: [Max Avdeev](http://maxavdeev.com/) / [Buzzfeed](http://buzzfeed.com)
+Знаменитый фоторепортаж из Дебальцево. Фото: [Max Avdeev](http://maxavdeev.com/) / [Buzzfeed](http://buzzfeed.com)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/12/deb12-3.jpg)  
- Знаменитый фоторепортаж из Дебальцево. Фото: [Max Avdeev](http://maxavdeev.com/) / [Buzzfeed](http://buzzfeed.com)
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/12/deb12-2.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/12/deb12-4.jpg)  
- Знаменитый фоторепортаж из Дебальцево. Фото: [Max Avdeev](http://maxavdeev.com/) / [Buzzfeed](http://buzzfeed.com)
+Знаменитый фоторепортаж из Дебальцево. Фото: [Max Avdeev](http://maxavdeev.com/) / [Buzzfeed](http://buzzfeed.com)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/12/deb12-5.jpg)  
- Знаменитый фоторепортаж из Дебальцево. Фото: [Max Avdeev](http://maxavdeev.com/) / [Buzzfeed](http://buzzfeed.com)
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/12/deb12-3.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/12/deb12-6.jpg)  
- Знаменитый фоторепортаж из Дебальцево. Фото: [Max Avdeev](http://maxavdeev.com/) / [Buzzfeed](http://buzzfeed.com)
+Знаменитый фоторепортаж из Дебальцево. Фото: [Max Avdeev](http://maxavdeev.com/) / [Buzzfeed](http://buzzfeed.com)
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/12/deb12-4.jpg)
+
+Знаменитый фоторепортаж из Дебальцево. Фото: [Max Avdeev](http://maxavdeev.com/) / [Buzzfeed](http://buzzfeed.com)
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/12/deb12-5.jpg)
+
+Знаменитый фоторепортаж из Дебальцево. Фото: [Max Avdeev](http://maxavdeev.com/) / [Buzzfeed](http://buzzfeed.com)
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/12/deb12-6.jpg)
+
+Знаменитый фоторепортаж из Дебальцево. Фото: [Max Avdeev](http://maxavdeev.com/) / [Buzzfeed](http://buzzfeed.com)
 
 Говоря о роли «северного ветра», приходится держать в голове два момента. Во-первых, «северяне» появились на поле боя достаточно поздно, когда в руки ополчения уже попало Логвиново. Большую часть работы в любом случае сделали донбассцы и добровольцы из России. Не следует и преуменьшать значение отважных бурят (и «бурят»): триста человек с полнокровным танковым батальоном вбили внушительный гвоздь в крышку украинской обороны Дебальцево.
 

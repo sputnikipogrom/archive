@@ -23,28 +23,45 @@ canonical: "https://sputnikipogrom.net/pics/35429/zodchii-4/"
 
 1/2 Домъ №1 по Кронверкскому просп. въ С.-Петербургѣ
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-24.jpg)  
- 2/2 Домъ №1 по Кронверкскому просп. въ С.-Петербургѣ
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-24.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-2.jpg)  
- Мотивы китайской архитектуры. 1/7 Арка въ честь Добродѣтельной Женщины и развалины мечети въ Пекинѣ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-2x.jpg)  
- 2/7 Бесѣдка въ Шаньси и бесѣдка у Верблюжьяго моста подъ Пекиномъ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-9.jpg)  
- 3/7 Буддійскій храмъ на холмѣ лѣтняго дворца Богдыхана подъ Пекиномъ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-10.jpg)  
- 4/7 Мраморная пагода въ монастырѣ Баюнь-Сы. Второй этажъ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-11.jpg)  
- 6/7 Боковая «арка» входа въ храмъ Западной Горы, мраморная пагода подъ Пекиномъ, входъ храма «Спящаго Будды» подъ Пекиномъ и входъ въ храмъ императора Яо въ Шаньси
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-12.jpg)  
- 7/7 Входъ храма Конфуція въ Тай-юань-фу, Храмъ въ Кай-фынь-фу в губ. Хэнано, рка въ Цзянь-Чжоу въ Шэнси и cтроеніе надъ театральными подмостками
+2/2 Домъ №1 по Кронверкскому просп. въ С.-Петербургѣ
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-3.jpg)  
- 1/3 Эскизный проектъ церкви для м. Геленджикъ на Кавказѣ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-4.jpg)  
- 2/3 Эскизный проектъ церкви для м. Геленджикъ на Кавказѣ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-5.jpg)  
- 3/3 Эскизный проектъ церкви для м. Геленджикъ на Кавказѣ
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-2.jpg)
+
+Мотивы китайской архитектуры. 1/7 Арка въ честь Добродѣтельной Женщины и развалины мечети въ Пекинѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-2x.jpg)
+
+2/7 Бесѣдка въ Шаньси и бесѣдка у Верблюжьяго моста подъ Пекиномъ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-9.jpg)
+
+3/7 Буддійскій храмъ на холмѣ лѣтняго дворца Богдыхана подъ Пекиномъ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-10.jpg)
+
+4/7 Мраморная пагода въ монастырѣ Баюнь-Сы. Второй этажъ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-11.jpg)
+
+6/7 Боковая «арка» входа въ храмъ Западной Горы, мраморная пагода подъ Пекиномъ, входъ храма «Спящаго Будды» подъ Пекиномъ и входъ въ храмъ императора Яо въ Шаньси
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-12.jpg)
+
+7/7 Входъ храма Конфуція въ Тай-юань-фу, Храмъ въ Кай-фынь-фу в губ. Хэнано, рка въ Цзянь-Чжоу въ Шэнси и cтроеніе надъ театральными подмостками
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-3.jpg)
+
+1/3 Эскизный проектъ церкви для м. Геленджикъ на Кавказѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-4.jpg)
+
+2/3 Эскизный проектъ церкви для м. Геленджикъ на Кавказѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-5.jpg)
+
+3/3 Эскизный проектъ церкви для м. Геленджикъ на Кавказѣ
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-6.jpg)
 
@@ -62,33 +79,41 @@ canonical: "https://sputnikipogrom.net/pics/35429/zodchii-4/"
 
 Робертъ Андреевичъ Гедике. Почетный членъ Императорскаго Спб. Общества Архитекторовъ
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-14.jpg)  
- Николаевскій домъ призрѣнія престарѣлыхъ и увѣчныхъ гражданъ въ С.-Петербургѣ. 1/5 Парадная лѣстница и главный подъѣздъ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-20.jpg)  
- 5/5 Перспективный видъ часовни и звонницы
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-14.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-18.jpg)  
- Домъ призрѣнія Тименкова-Фролова въ С.-Петербургѣ. 1/3 Малый придѣлъ для отпѣванія усопшихъ
+Николаевскій домъ призрѣнія престарѣлыхъ и увѣчныхъ гражданъ въ С.-Петербургѣ. 1/5 Парадная лѣстница и главный подъѣздъ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-20.jpg)
+
+5/5 Перспективный видъ часовни и звонницы
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-18.jpg)
+
+Домъ призрѣнія Тименкова-Фролова въ С.-Петербургѣ. 1/3 Малый придѣлъ для отпѣванія усопшихъ
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-19.jpg)
 
 Проектъ запаснаго дома одного изъ Загородныхъ дворцовъ
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-21.jpg)  
- Отдѣленіе Волжско-Камскаго банка въ Ростовѣ на Дону. 1/2 Общій видъ
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-21.jpg)
+
+Отдѣленіе Волжско-Камскаго банка въ Ростовѣ на Дону. 1/2 Общій видъ
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-23.jpg)
 
 Деревянная дача на станціи Вырица (Моск. Винд. Рыб. ж. д.)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-25.jpg)  
- Домъ-особнякъ А. А. Половцова въ С.-Петербургѣ. (Морская, 52). 1/4 Парадная лѣстница
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-25.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-29.jpg)  
- Конкурсный проектъ зданія отдѣленія Спб. Международнаго Коммерческаго банка въ г. Екатеринославе. 1/3 I премія
+Домъ-особнякъ А. А. Половцова въ С.-Петербургѣ. (Морская, 52). 1/4 Парадная лѣстница
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-32.jpg)  
- Конкурсный проектъ храма въ память 300-лѣтняго царствованія Дома Романовыхъ, при подворьѣ Ѳеодоровского Городецкаго монастыря въ С.-Петербургѣ. 1/6 I премія
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-29.jpg)
+
+Конкурсный проектъ зданія отдѣленія Спб. Международнаго Коммерческаго банка въ г. Екатеринославе. 1/3 I премія
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-32.jpg)
+
+Конкурсный проектъ храма въ память 300-лѣтняго царствованія Дома Романовыхъ, при подворьѣ Ѳеодоровского Городецкаго монастыря въ С.-Петербургѣ. 1/6 I премія
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-41.jpg)
 
@@ -102,28 +127,41 @@ canonical: "https://sputnikipogrom.net/pics/35429/zodchii-4/"
 
 Планъ мѣстности у Храма Христа Спасителя
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-47.jpg)  
- Архитектурныя достопримѣчательности города Львова. 1/2 Костелъ Бернардиновъ, Каплица Трехъ Святителей и Фасадъ Каплицы Боимовъ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-48.jpg)  
- 2/2 Валахская церковь (Успенія) и колокольня Корнякта, колокольня Корнякта, фасадъ каплицы Кампьяновъ и порталъ костела доминикановъ
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-47.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-49.jpg)  
- 1/3 Эчміадзинскій патріаршій кафедральный соборъ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-50.jpg)  
- 2/3 Эчміадзинскій патріаршій кафедральный соборъ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-53.jpg)  
- 3/3 Эчміадзинскій патріаршій кафедральный соборъ
+Архитектурныя достопримѣчательности города Львова. 1/2 Костелъ Бернардиновъ, Каплица Трехъ Святителей и Фасадъ Каплицы Боимовъ
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-51.jpg)  
- Эскизъ зданія въ Кронштадтѣ для Морской Библіотеки. 1/2 Главный фасадъ
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-48.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-57.jpg)  
- Конкурсный проектъ дома для помѣщенія Русскаго Торгово-Промышленнаго Банка въ С.-Петербургѣ. 1/5 I премія
+2/2 Валахская церковь (Успенія) и колокольня Корнякта, колокольня Корнякта, фасадъ каплицы Кампьяновъ и порталъ костела доминикановъ
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-58.jpg)  
- Домъ Гвардейскаго Экономическаго Общества въ С.-Петербургѣ. 1/3 Внутренній видъ магазина
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-61.jpg)  
- 3/3 Видъ зданія съ угла Бол. Конюшенной ул. и Волынкина пер. и главный входъ
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-49.jpg)
+
+1/3 Эчміадзинскій патріаршій кафедральный соборъ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-50.jpg)
+
+2/3 Эчміадзинскій патріаршій кафедральный соборъ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-53.jpg)
+
+3/3 Эчміадзинскій патріаршій кафедральный соборъ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-51.jpg)
+
+Эскизъ зданія въ Кронштадтѣ для Морской Библіотеки. 1/2 Главный фасадъ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-57.jpg)
+
+Конкурсный проектъ дома для помѣщенія Русскаго Торгово-Промышленнаго Банка въ С.-Петербургѣ. 1/5 I премія
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-58.jpg)
+
+Домъ Гвардейскаго Экономическаго Общества въ С.-Петербургѣ. 1/3 Внутренній видъ магазина
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-61.jpg)
+
+3/3 Видъ зданія съ угла Бол. Конюшенной ул. и Волынкина пер. и главный входъ
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/zod4-62.jpg)
 

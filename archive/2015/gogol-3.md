@@ -9,8 +9,9 @@ n: 34294
 canonical: "https://sputnikipogrom.net/culture/34294/gogol-3/"
 ---
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/go-02.png)  
- Памятник сегодня (Дом-музей Н. В. Гоголя). 2/2
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/04/go-02.png)
+
+Памятник сегодня (Дом-музей Н. В. Гоголя). 2/2
 
 Э
 

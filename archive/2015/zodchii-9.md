@@ -29,102 +29,172 @@ canonical: "https://sputnikipogrom.net/pics/39144/zodchii-9/"
 
 Конюшни въ имѣнiе Н.П. Малютина близъ Москвы
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-06.jpg)  
- Конкурсные проекты зданiя реального училища им. Императора Александра II
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-07.jpg)  
- Конкурсные проекты зданiя реального училища им. Императора Александра II
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-06.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-08.jpg)  
- Конкурсные проекты доходнаго дома для С.-Петербургской купеческой управы
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-09.jpg)  
- Конкурсные проекты доходнаго дома для С.-Петербургской купеческой управы
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-10.jpg)  
- Конкурсные проекты доходнаго дома для С.-Петербургской купеческой управы
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-11.jpg)  
- Конкурсные проекты доходнаго дома для С.-Петербургской купеческой управы
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-12.jpg)  
- Конкурсные проекты доходнаго дома для С.-Петербургской купеческой управы
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-13.jpg)  
- Конкурсные проекты доходнаго дома для С.-Петербургской купеческой управы
+Конкурсные проекты зданiя реального училища им. Императора Александра II
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-14.jpg)  
- Конкурсный проектъ дома Э. Л. Петерсенъ в С.-Петербургѣ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-21.jpg)  
- Конкурсный проектъ дома Э. Л. Петерсенъ в С.-Петербургѣ
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-07.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-15.jpg)  
- Проект усыпальницы семейства Сапожниковыхъ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-16.jpg)  
- Проект усыпальницы семейства Сапожниковыхъ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-17.jpg)  
- Проект усыпальницы семейства Сапожниковыхъ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-24.jpg)  
- Проект усыпальницы семейства Сапожниковыхъ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-25.jpg)  
- Проект усыпальницы семейства Сапожниковыхъ
+Конкурсные проекты зданiя реального училища им. Императора Александра II
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-18.jpg)  
- Домъ страхового общества «Россiя» на Срѣтенскомъ бульварѣ въ Москвѣ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-19.jpg)  
- Домъ страхового общества «Россiя» на Срѣтенскомъ бульварѣ въ Москвѣ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-20.jpg)  
- Домъ страхового общества «Россiя» на Срѣтенскомъ бульварѣ въ Москвѣ
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-08.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-26.jpg)  
- Конкурсные проекты городскихъ трансформаторныхъ станцiй
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-27.jpg)  
- Конкурсные проекты городскихъ трансформаторныхъ станцiй
+Конкурсные проекты доходнаго дома для С.-Петербургской купеческой управы
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-09.jpg)
+
+Конкурсные проекты доходнаго дома для С.-Петербургской купеческой управы
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-10.jpg)
+
+Конкурсные проекты доходнаго дома для С.-Петербургской купеческой управы
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-11.jpg)
+
+Конкурсные проекты доходнаго дома для С.-Петербургской купеческой управы
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-12.jpg)
+
+Конкурсные проекты доходнаго дома для С.-Петербургской купеческой управы
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-13.jpg)
+
+Конкурсные проекты доходнаго дома для С.-Петербургской купеческой управы
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-14.jpg)
+
+Конкурсный проектъ дома Э. Л. Петерсенъ в С.-Петербургѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-21.jpg)
+
+Конкурсный проектъ дома Э. Л. Петерсенъ в С.-Петербургѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-15.jpg)
+
+Проект усыпальницы семейства Сапожниковыхъ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-16.jpg)
+
+Проект усыпальницы семейства Сапожниковыхъ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-17.jpg)
+
+Проект усыпальницы семейства Сапожниковыхъ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-24.jpg)
+
+Проект усыпальницы семейства Сапожниковыхъ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-25.jpg)
+
+Проект усыпальницы семейства Сапожниковыхъ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-18.jpg)
+
+Домъ страхового общества «Россiя» на Срѣтенскомъ бульварѣ въ Москвѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-19.jpg)
+
+Домъ страхового общества «Россiя» на Срѣтенскомъ бульварѣ въ Москвѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-20.jpg)
+
+Домъ страхового общества «Россiя» на Срѣтенскомъ бульварѣ въ Москвѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-26.jpg)
+
+Конкурсные проекты городскихъ трансформаторныхъ станцiй
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-27.jpg)
+
+Конкурсные проекты городскихъ трансформаторныхъ станцiй
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-28.jpg)
 
 Конкурсные проекты столбовъ для городских электрическихъ железныхъ дорогъ
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-29.jpg)  
- Проект зданiя элементарныхъ школъ лютеранскаго призода Св. Анны, С.-Петербург
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-30.jpg)  
- Проект зданiя элементарныхъ школъ лютеранскаго призода Св. Анны, С.-Петербург
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-29.jpg)
+
+Проект зданiя элементарныхъ школъ лютеранскаго призода Св. Анны, С.-Петербург
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-30.jpg)
+
+Проект зданiя элементарныхъ школъ лютеранскаго призода Св. Анны, С.-Петербург
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-31.jpg)
 
 Зданiе для свиты во время проѣезда высочайшихъ гостей въ именiи «Ольгино»
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-34.jpg)  
- Конкурсный проектъ театра съ общественной библиотекой, читальней и заломъ для собранiй въ г. Варшавѣ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-35.jpg)  
- Конкурсный проектъ театра съ общественной библиотекой, читальней и заломъ для собранiй въ г. Варшавѣ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-37.jpg)  
- Конкурсный проектъ театра съ общественной библиотекой, читальней и заломъ для собранiй въ г. Варшавѣ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-38.jpg)  
- Конкурсный проектъ театра съ общественной библиотекой, читальней и заломъ для собранiй въ г. Варшавѣ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-39.jpg)  
- Конкурсный проектъ театра съ общественной библиотекой, читальней и заломъ для собранiй въ г. Варшавѣ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-41.jpg)  
- Конкурсный проектъ театра съ общественной библиотекой, читальней и заломъ для собранiй въ г. Варшавѣ  ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-40.jpg)  
- Экскизъ доходнаго дома на угловомъ мѣстѣ  ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-43.jpg)  
- Домъ Н. М. Безобразовой на Моховой ул. въ С.-Петербургѣ
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-34.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-47.jpg)  
- Проектъ подворья Старо-Ладожскаго монастыря
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-48.jpg)  
- Проектъ подворья Старо-Ладожскаго монастыря
+Конкурсный проектъ театра съ общественной библиотекой, читальней и заломъ для собранiй въ г. Варшавѣ
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-49.jpg)  
- Матерiалы по исторiи русской архитектуры.
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-50.jpg)  
- Матерiалы по исторiи русской архитектуры.
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-52.jpg)  
- Матерiалы по исторiи русской архитектуры.
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-35.jpg)
+
+Конкурсный проектъ театра съ общественной библиотекой, читальней и заломъ для собранiй въ г. Варшавѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-37.jpg)
+
+Конкурсный проектъ театра съ общественной библиотекой, читальней и заломъ для собранiй въ г. Варшавѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-38.jpg)
+
+Конкурсный проектъ театра съ общественной библиотекой, читальней и заломъ для собранiй въ г. Варшавѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-39.jpg)
+
+Конкурсный проектъ театра съ общественной библиотекой, читальней и заломъ для собранiй въ г. Варшавѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-41.jpg)
+
+Конкурсный проектъ театра съ общественной библиотекой, читальней и заломъ для собранiй въ г. Варшавѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-40.jpg)
+
+Экскизъ доходнаго дома на угловомъ мѣстѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-43.jpg)
+
+Домъ Н. М. Безобразовой на Моховой ул. въ С.-Петербургѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-47.jpg)
+
+Проектъ подворья Старо-Ладожскаго монастыря
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-48.jpg)
+
+Проектъ подворья Старо-Ладожскаго монастыря
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-49.jpg)
+
+Матерiалы по исторiи русской архитектуры.
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-50.jpg)
+
+Матерiалы по исторiи русской архитектуры.
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-52.jpg)
+
+Матерiалы по исторiи русской архитектуры.
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-51.jpg)
 
 Рисунокъ каменной церкви на 2000 чел. во имя Покрова Пресвятой Бородицы въ С. Пархомовкѣ
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-53.jpg)  
- Домъ-особянкъ г. фанъ Гильзе фанъ-деръ Пальсъ, С.-Петербугъ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-54.jpg)  
- Домъ-особянкъ г. фанъ Гильзе фанъ-деръ Пальсъ, С.-Петербугъ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-55.jpg)  
- Домъ-особянкъ г. фанъ Гильзе фанъ-деръ Пальсъ, С.-Петербугъ  ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-57.jpg)  
- Часовня на кладбищѣ Воскресенскаго монастыря
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-53.jpg)
+
+Домъ-особянкъ г. фанъ Гильзе фанъ-деръ Пальсъ, С.-Петербугъ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-54.jpg)
+
+Домъ-особянкъ г. фанъ Гильзе фанъ-деръ Пальсъ, С.-Петербугъ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-55.jpg)
+
+Домъ-особянкъ г. фанъ Гильзе фанъ-деръ Пальсъ, С.-Петербугъ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/06/zod1905-57.jpg)
+
+Часовня на кладбищѣ Воскресенскаго монастыря
 
 /

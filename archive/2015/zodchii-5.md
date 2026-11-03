@@ -23,57 +23,81 @@ canonical: "https://sputnikipogrom.net/pics/36973/zodchii-5/"
 
 Домъ Политехническаго Общества въ Москвѣ. 1/6 Общій видъ
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-4x.jpg)  
- 6/6 Библіотека (видъ изъ зала Совѣта) и южный фасадъ двора
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-4x.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-5.jpg)  
- Губернскій земскій домъ въ г. Полтавѣ. 1/3 Сѣни (видъ сбоку) и I этажъ (видъ на парадную лѣстницу и кулуаръ)
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-7.jpg)  
- 3/3 Залъ засѣданій (видъ на главную стѣну отъ входа въ залъ) и видъ на хоры
+6/6 Библіотека (видъ изъ зала Совѣта) и южный фасадъ двора
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-8.jpg)  
- Московская окружная дорога. 1/3 Мостъ Императора Николая II на 36 верстѣ дороги и устой моста на правомъ берегу р. Москвы
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-9.jpg)  
- 2/3 Домъ начальника участка службы тяги на ст. Лихоборы и пассажирское зданіе на станціи (видъ со стороны подъѣзда)
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-10.jpg)  
- 3/3 Столовая при воинскомъ продовольственномъ пунктѣ на ст. Серебряный-Боръ и пассажирское зданіе на ст. Воробьевы-Горы
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-5.jpg)
+
+Губернскій земскій домъ въ г. Полтавѣ. 1/3 Сѣни (видъ сбоку) и I этажъ (видъ на парадную лѣстницу и кулуаръ)
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-7.jpg)
+
+3/3 Залъ засѣданій (видъ на главную стѣну отъ входа въ залъ) и видъ на хоры
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-8.jpg)
+
+Московская окружная дорога. 1/3 Мостъ Императора Николая II на 36 верстѣ дороги и устой моста на правомъ берегу р. Москвы
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-9.jpg)
+
+2/3 Домъ начальника участка службы тяги на ст. Лихоборы и пассажирское зданіе на станціи (видъ со стороны подъѣзда)
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-10.jpg)
+
+3/3 Столовая при воинскомъ продовольственномъ пунктѣ на ст. Серебряный-Боръ и пассажирское зданіе на ст. Воробьевы-Горы
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-11.jpg)
 
 Эрнестъ Ивановичъ Жиберъ. Почетный членъ Императорскаго Спб. Общества Архитекторовъ
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-12.jpg)  
- Конкурсные проекты зданія Нерсесянъ Армянской духовной семинаріи въ г. Тифлисе. 1/3 I премiя
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-12.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-15.jpg)  
- Конкурсные проекты зданія женской гимназіи въ Екатеринбургѣ. 1/4 I премiя
+Конкурсные проекты зданія Нерсесянъ Армянской духовной семинаріи въ г. Тифлисе. 1/3 I премiя
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-18.jpg)  
- Конкурсные проекты Храма Попечительства при Кіево-Лыбедской Троицкой церкви въ Кіевѣ. 1/5 I премiя
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-15.jpg)
+
+Конкурсные проекты зданія женской гимназіи въ Екатеринбургѣ. 1/4 I премiя
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-18.jpg)
+
+Конкурсные проекты Храма Попечительства при Кіево-Лыбедской Троицкой церкви въ Кіевѣ. 1/5 I премiя
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-22.jpg)
 
 Проектъ Донского средняго Сельскохозяйственнаго училища близъ г. Новочеркасска
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-23.jpg)  
- 1/2 Проектъ зданія Земельнаго Банка въ г. Пензѣ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-24.jpg)  
- 2/2 Проектъ зданія Земельнаго Банка въ г. Пензѣ
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-23.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-25.jpg)  
- Русскій Музей Императора Александра III. 1/3 Проектъ средней части фасада (Этнографическій отдѣлъ)
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-26.jpg)  
- 2/3 Проектъ фасада Этнографическаго отдѣла (по Инженерной ул.)
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-27.jpg)  
- 3/3 Проектъ внутреннихъ помѣщеній Этнографическаго отдѣла
+1/2 Проектъ зданія Земельнаго Банка въ г. Пензѣ
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-28.jpg)  
- 1/2 Къ статьѣ В. Курбатова «Сады Италіи»
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-29.jpg)  
- 2/2 Къ статьѣ В. Курбатова «Сады Италіи»
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-24.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-30.jpg)  
- Конкурсный проектъ народнаго дома имени С. Т. Аксакова въ г. Уфѣ. 1/9 I премiя
+2/2 Проектъ зданія Земельнаго Банка въ г. Пензѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-25.jpg)
+
+Русскій Музей Императора Александра III. 1/3 Проектъ средней части фасада (Этнографическій отдѣлъ)
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-26.jpg)
+
+2/3 Проектъ фасада Этнографическаго отдѣла (по Инженерной ул.)
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-27.jpg)
+
+3/3 Проектъ внутреннихъ помѣщеній Этнографическаго отдѣла
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-28.jpg)
+
+1/2 Къ статьѣ В. Курбатова «Сады Италіи»
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-29.jpg)
+
+2/2 Къ статьѣ В. Курбатова «Сады Италіи»
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-30.jpg)
+
+Конкурсный проектъ народнаго дома имени С. Т. Аксакова въ г. Уфѣ. 1/9 I премiя
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-37.jpg)
 
@@ -83,14 +107,17 @@ canonical: "https://sputnikipogrom.net/pics/36973/zodchii-5/"
 
 Конкурсный проектъ театра, концертнаго зала, казино и ресторана Эстонскаго Музыкальнаго Общества въ г. Ревелѣ
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-39.jpg)  
- Конкурсные проекты зданія Харьковскаго Городского коммерческаго банка. 1/6 I премiя
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-39.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-44.jpg)  
- Конкурсные проекты зданія городскихъ народныхъ бань въ С.-Петербургѣ. 1/2 I премiя
+Конкурсные проекты зданія Харьковскаго Городского коммерческаго банка. 1/6 I премiя
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-46.jpg)  
- Конкурсные проекты Харьковской хоральной синагоги. 1/3 I премiя
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-44.jpg)
+
+Конкурсные проекты зданія городскихъ народныхъ бань въ С.-Петербургѣ. 1/2 I премiя
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-46.jpg)
+
+Конкурсные проекты Харьковской хоральной синагоги. 1/3 I премiя
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/05/zod5-49.jpg)
 

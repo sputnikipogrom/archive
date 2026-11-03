@@ -51,24 +51,37 @@ canonical: "https://sputnikipogrom.net/culture/40652/zodchii-12/"
 
 Народный домъ Общества распространенiя образовательных народных развлеченiй въ Москвѣ
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-17.jpg)  
- Церковь на Охтенскомъ полигонѣ в С.-Петербургѣ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-18.jpg)  
- Церковь на Охтенскомъ полигонѣ в С.-Петербургѣ
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-17.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-19.jpg)  
- Конкурсные проекты фасада дома И.В. Бессера в С.-Петербургѣ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-20.jpg)  
- Конкурсные проекты фасада дома И.В. Бессера в С.-Петербургѣ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-21.jpg)  
- Конкурсные проекты фасада дома И.В. Бессера в С.-Петербургѣ
+Церковь на Охтенскомъ полигонѣ в С.-Петербургѣ
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-22.jpg)  
- Рестраврацiя церкви «Св. Апостоловъ», Салоники (Турцiя)
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-23.jpg)  
- Рестраврацiя церкви «Св. Апостоловъ», Салоники (Турцiя)
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-24.jpg)  
- Рестраврацiя церкви «Св. Апостоловъ», Салоники (Турцiя)
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-18.jpg)
+
+Церковь на Охтенскомъ полигонѣ в С.-Петербургѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-19.jpg)
+
+Конкурсные проекты фасада дома И.В. Бессера в С.-Петербургѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-20.jpg)
+
+Конкурсные проекты фасада дома И.В. Бессера в С.-Петербургѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-21.jpg)
+
+Конкурсные проекты фасада дома И.В. Бессера в С.-Петербургѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-22.jpg)
+
+Рестраврацiя церкви «Св. Апостоловъ», Салоники (Турцiя)
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-23.jpg)
+
+Рестраврацiя церкви «Св. Апостоловъ», Салоники (Турцiя)
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-24.jpg)
+
+Рестраврацiя церкви «Св. Апостоловъ», Салоники (Турцiя)
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-25.jpg)
 
@@ -78,32 +91,49 @@ canonical: "https://sputnikipogrom.net/culture/40652/zodchii-12/"
 
 Домъ Т-ва скоропечатни А. Левенсонъ въ Москвѣ
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-27.jpg)  
- Первоначальный проектъ усадьбы въ имѣнiи А.Н. Воейкова (Орловской губ.)
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-28.jpg)  
- Первоначальный проектъ усадьбы въ имѣнiи А.Н. Воейкова (Орловской губ.)
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-29.jpg)  
- Первоначальный проектъ усадьбы въ имѣнiи А.Н. Воейкова (Орловской губ.)
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-27.jpg)
+
+Первоначальный проектъ усадьбы въ имѣнiи А.Н. Воейкова (Орловской губ.)
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-28.jpg)
+
+Первоначальный проектъ усадьбы въ имѣнiи А.Н. Воейкова (Орловской губ.)
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-29.jpg)
+
+Первоначальный проектъ усадьбы въ имѣнiи А.Н. Воейкова (Орловской губ.)
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-30.jpg)
 
 Дача Его Величества Принца Петра Александровича Ольденбургскаго въ имѣнiи Домовичи Новгородской губ.
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-31.jpg)  
- Конкурсный проектъ доходнаго дома насл. Лапудовой въ г. Одессе
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-32.jpg)  
- Конкурсный проектъ доходнаго дома насл. Лапудовой въ г. Одессе
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-33.jpg)  
- Конкурсный проектъ доходнаго дома насл. Лапудовой въ г. Одессе
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-34.jpg)  
- Конкурсный проектъ доходнаго дома насл. Лапудовой въ г. Одессе
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-35.jpg)  
- Конкурсный проектъ доходнаго дома насл. Лапудовой въ г. Одессе
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-31.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-37.jpg)  
- Конкурсный проектъ зданiя Симбирской губернской земской Управы
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-38.jpg)  
- Конкурсный проектъ зданiя Симбирской губернской земской Управы
+Конкурсный проектъ доходнаго дома насл. Лапудовой въ г. Одессе
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-32.jpg)
+
+Конкурсный проектъ доходнаго дома насл. Лапудовой въ г. Одессе
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-33.jpg)
+
+Конкурсный проектъ доходнаго дома насл. Лапудовой въ г. Одессе
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-34.jpg)
+
+Конкурсный проектъ доходнаго дома насл. Лапудовой въ г. Одессе
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-35.jpg)
+
+Конкурсный проектъ доходнаго дома насл. Лапудовой въ г. Одессе
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-37.jpg)
+
+Конкурсный проектъ зданiя Симбирской губернской земской Управы
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-38.jpg)
+
+Конкурсный проектъ зданiя Симбирской губернской земской Управы
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/07/zod1902-39.jpg)
 

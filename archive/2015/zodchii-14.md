@@ -27,10 +27,13 @@ canonical: "https://sputnikipogrom.net/culture/41382/zodchii-14/"
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-01.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-02.jpg)  
- Высочайше утвержденный проектъ соборнаго храма Морского вѣдомства въ Крондштадтѣ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-03.jpg)  
- Высочайше утвержденный проектъ соборнаго храма Морского вѣдомства въ Крондштадтѣ
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-02.jpg)
+
+Высочайше утвержденный проектъ соборнаго храма Морского вѣдомства въ Крондштадтѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-03.jpg)
+
+Высочайше утвержденный проектъ соборнаго храма Морского вѣдомства въ Крондштадтѣ
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-11.jpg)
 
@@ -40,19 +43,25 @@ canonical: "https://sputnikipogrom.net/culture/41382/zodchii-14/"
 
 Фасадъ дома А.Я. Барышникова на Николаевской ул. въ С.-Петербургѣ
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-14.jpg)  
- Ремесленно-воспитательное заведенiе имени И.Н. Трапезникова въ г. Иркутскѣ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-15.jpg)  
- Ремесленно-воспитательное заведенiе имени И.Н. Трапезникова въ г. Иркутскѣ
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-14.jpg)
+
+Ремесленно-воспитательное заведенiе имени И.Н. Трапезникова въ г. Иркутскѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-15.jpg)
+
+Ремесленно-воспитательное заведенiе имени И.Н. Трапезникова въ г. Иркутскѣ
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-16.jpg)
 
 Домъ полуособнякъ г. Никитенко въ С.-Петерубргѣ
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-17.jpg)  
- Конкурсный проектъ дома бр. Тумаевыхъ въ Баку
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-21.jpg)  
- Конкурсный проектъ дома бр. Тумаевыхъ въ Баку
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-17.jpg)
+
+Конкурсный проектъ дома бр. Тумаевыхъ въ Баку
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-21.jpg)
+
+Конкурсный проектъ дома бр. Тумаевыхъ въ Баку
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-18.jpg)
 
@@ -66,37 +75,120 @@ canonical: "https://sputnikipogrom.net/culture/41382/zodchii-14/"
 
 Детали фасада сберагательной кассы въ С.-Петербургѣ
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-22.jpg)  
- Конкурсный проектъ доходнаго дома и особняка въ г.Москвѣ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-23.jpg)  
- Конкурсный проектъ доходнаго дома и особняка въ г.Москвѣ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-24.jpg)  
- Конкурсный проектъ доходнаго дома и особняка въ г.Москвѣ   ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-26.jpg)  
- Расчетъ устойчивости церкви св. Александра Невскаго на ст. Конотопъ  ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-27.jpg)  
- Расчетъ устойчивости церкви св. Александра Невскаго на ст. Конотопъ   ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-28.jpg)  
- Внутреннiй видъ церкви въ богадѣльнѣ имени Гееръ въ Москвѣ   ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-29.jpg)  
- Домъ Общества Поощренiя Художеств въ г. Варшавѣ  ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-30.jpg)  
- Домъ Общества Поощренiя Художеств въ г. Варшавѣ    ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-31.jpg)  
- Церковь на 3800 челов. въ с. Плохино, Калужская губ.  ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-32.jpg)  
- Церковь на 3800 челов. въ с. Плохино, Калужская губ.   ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-33.jpg)  
- Строящаяся въ Киссингенѣ русская церковь  ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-34.jpg)  
- Рѣшетка изъ кованнаго желѣза для ограды при садѣ Императорскаго Зимняго Дворца   ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-35.jpg)  
- Домъ Е.Г. Шведерскаго на Каменноостровскомъ просп. въ С.-Петербургѣ  ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-36.jpg)  
- Домъ Е.Г. Шведерскаго на Каменноостровскомъ просп. въ С.-Петербургѣ   ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-43.jpg)  
- Церковь на Ново-Сивковской ул. въ С.-Петерубргѣ  ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-44.jpg)  
- Церковь на Ново-Сивковской ул. въ С.-Петерубргѣ    ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-47.jpg)  
- Варшавский политеническiй институтъ Императора Николая II  ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-46.jpg)  
- Варшавский политеническiй институтъ Императора Николая II  ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-45.jpg)  
- Варшавский политеническiй институтъ Императора Николая II  ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-48.jpg)  
- Варшавский политеническiй институтъ Императора Николая II  ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-49.jpg)  
- Варшавский политеническiй институтъ Императора Николая II  ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-50.jpg)  
- Варшавский политеническiй институтъ Императора Николая II    ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-52.jpg)  
- Домъ страхового общества «Россiя» въ Москвѣ  ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-51.jpg)  
- Домъ страхового общества «Россiя» въ Москвѣ  ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-60.jpg)  
- Домъ страхового общества «Россiя» въ Варшавѣ  ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-61.jpg)  
- Домъ страхового общества «Россiя» въ Варшавѣ    ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-58.jpg)  
- Дача Е.К. Гаусвальдъ на Каменномъ Островѣ въ С.-Петербургѣ  ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-59.jpg)  
- Дача Е.К. Гаусвальдъ на Каменномъ Островѣ въ С.-Петербургѣ   ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-62.jpg)  
- Домъ гг. Осипова и Рахманова въ Москвѣ у Москварѣцкаго моста     
-  
- /
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-22.jpg)
+
+Конкурсный проектъ доходнаго дома и особняка въ г.Москвѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-23.jpg)
+
+Конкурсный проектъ доходнаго дома и особняка въ г.Москвѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-24.jpg)
+
+Конкурсный проектъ доходнаго дома и особняка въ г.Москвѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-26.jpg)
+
+Расчетъ устойчивости церкви св. Александра Невскаго на ст. Конотопъ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-27.jpg)
+
+Расчетъ устойчивости церкви св. Александра Невскаго на ст. Конотопъ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-28.jpg)
+
+Внутреннiй видъ церкви въ богадѣльнѣ имени Гееръ въ Москвѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-29.jpg)
+
+Домъ Общества Поощренiя Художеств въ г. Варшавѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-30.jpg)
+
+Домъ Общества Поощренiя Художеств въ г. Варшавѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-31.jpg)
+
+Церковь на 3800 челов. въ с. Плохино, Калужская губ.
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-32.jpg)
+
+Церковь на 3800 челов. въ с. Плохино, Калужская губ.
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-33.jpg)
+
+Строящаяся въ Киссингенѣ русская церковь
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-34.jpg)
+
+Рѣшетка изъ кованнаго желѣза для ограды при садѣ Императорскаго Зимняго Дворца
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-35.jpg)
+
+Домъ Е.Г. Шведерскаго на Каменноостровскомъ просп. въ С.-Петербургѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-36.jpg)
+
+Домъ Е.Г. Шведерскаго на Каменноостровскомъ просп. въ С.-Петербургѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-43.jpg)
+
+Церковь на Ново-Сивковской ул. въ С.-Петерубргѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-44.jpg)
+
+Церковь на Ново-Сивковской ул. въ С.-Петерубргѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-47.jpg)
+
+Варшавский политеническiй институтъ Императора Николая II
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-46.jpg)
+
+Варшавский политеническiй институтъ Императора Николая II
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-45.jpg)
+
+Варшавский политеническiй институтъ Императора Николая II
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-48.jpg)
+
+Варшавский политеническiй институтъ Императора Николая II
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-49.jpg)
+
+Варшавский политеническiй институтъ Императора Николая II
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-50.jpg)
+
+Варшавский политеническiй институтъ Императора Николая II
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-52.jpg)
+
+Домъ страхового общества «Россiя» въ Москвѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-51.jpg)
+
+Домъ страхового общества «Россiя» въ Москвѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-60.jpg)
+
+Домъ страхового общества «Россiя» въ Варшавѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-61.jpg)
+
+Домъ страхового общества «Россiя» въ Варшавѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-58.jpg)
+
+Дача Е.К. Гаусвальдъ на Каменномъ Островѣ въ С.-Петербургѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-59.jpg)
+
+Дача Е.К. Гаусвальдъ на Каменномъ Островѣ въ С.-Петербургѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1900-62.jpg)
+
+Домъ гг. Осипова и Рахманова въ Москвѣ у Москварѣцкаго моста
+
+/

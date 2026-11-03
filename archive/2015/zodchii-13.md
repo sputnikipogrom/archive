@@ -25,10 +25,13 @@ canonical: "https://sputnikipogrom.net/culture/41117/zodchii-13/"
 
 Церковь Л.-Гв. Конно-Гренадерскаго полка въ селѣ Димитрiевѣ
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-04.jpg)  
- Домъ барона В.Р. Штейнгеля въ имѣнiи «Хуторокъ»
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-05.jpg)  
- Домъ барона В.Р. Штейнгеля въ имѣнiи «Хуторокъ»
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-04.jpg)
+
+Домъ барона В.Р. Штейнгеля въ имѣнiи «Хуторокъ»
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-05.jpg)
+
+Домъ барона В.Р. Штейнгеля въ имѣнiи «Хуторокъ»
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-08.jpg)
 
@@ -46,61 +49,101 @@ canonical: "https://sputnikipogrom.net/culture/41117/zodchii-13/"
 
 Проектъ церкви въ с. Ханинѣ (калужск. губ.)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-18.jpg)  
- Проектъ собора исполненный для полученiя званiя академика архитектуры
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-19.jpg)  
- Проектъ собора исполненный для полученiя званiя академика архитектуры
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-18.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-20.jpg)  
- Доходный домъ В.А. Шретера въ С.-Петербургѣ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-21.jpg)  
- Доходный домъ В.А. Шретера въ С.-Петербургѣ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-68.jpg)  
- Доходный домъ В.А. Шретера въ С.-Петербургѣ  ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-23.jpg)  
- Церковь на Больше-Охтенскомъ единовѣрческомъ кладбищѣ въ С.-Петербургѣ
+Проектъ собора исполненный для полученiя званiя академика архитектуры
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-26.jpg)  
- Конкурсный проектъ фасада пассажирскаго зданiя Петербургской станцiи С.-Петербургско-Витебской ж.д.
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-31.jpg)  
- Конкурсный проектъ фасада пассажирскаго зданiя Петербургской станцiи С.-Петербургско-Витебской ж.д.
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-32.jpg)  
- Конкурсный проектъ фасада пассажирскаго зданiя Петербургской станцiи С.-Петербургско-Витебской ж.д.
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-33.jpg)  
- Конкурсный проектъ фасада пассажирскаго зданiя Петербургской станцiи С.-Петербургско-Витебской ж.д.
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-19.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-27.jpg)  
- Конкурсный проектъ зданiя Суворовскаго музея
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-45.jpg)  
- Конкурсный проектъ зданiя Суворовскаго музея
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-46.jpg)  
- Конкурсный проектъ зданiя Суворовскаго музея
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-47.jpg)  
- Конкурсный проектъ зданiя Суворовскаго музея
+Проектъ собора исполненный для полученiя званiя академика архитектуры
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-20.jpg)
+
+Доходный домъ В.А. Шретера въ С.-Петербургѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-21.jpg)
+
+Доходный домъ В.А. Шретера въ С.-Петербургѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-68.jpg)
+
+Доходный домъ В.А. Шретера въ С.-Петербургѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-23.jpg)
+
+Церковь на Больше-Охтенскомъ единовѣрческомъ кладбищѣ въ С.-Петербургѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-26.jpg)
+
+Конкурсный проектъ фасада пассажирскаго зданiя Петербургской станцiи С.-Петербургско-Витебской ж.д.
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-31.jpg)
+
+Конкурсный проектъ фасада пассажирскаго зданiя Петербургской станцiи С.-Петербургско-Витебской ж.д.
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-32.jpg)
+
+Конкурсный проектъ фасада пассажирскаго зданiя Петербургской станцiи С.-Петербургско-Витебской ж.д.
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-33.jpg)
+
+Конкурсный проектъ фасада пассажирскаго зданiя Петербургской станцiи С.-Петербургско-Витебской ж.д.
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-27.jpg)
+
+Конкурсный проектъ зданiя Суворовскаго музея
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-45.jpg)
+
+Конкурсный проектъ зданiя Суворовскаго музея
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-46.jpg)
+
+Конкурсный проектъ зданiя Суворовскаго музея
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-47.jpg)
+
+Конкурсный проектъ зданiя Суворовскаго музея
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-28.jpg)
 
 Проектъ фонаря у воротъ дома-особняка Г.В. Эшъ въ С.-Петербургѣ
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-29.jpg)  
- Домъ-особнякъ П7П. Форостовскаго въ С.-Петербургѣ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-30.jpg)  
- Домъ-особнякъ П7П. Форостовскаго въ С.-Петербургѣ
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-29.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-34.jpg)  
- Фасадъ С.-Петербургской конторы Московскаго купеческаго банка
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-35.jpg)  
- Фасадъ С.-Петербургской конторы Московскаго купеческаго банка
+Домъ-особнякъ П7П. Форостовскаго въ С.-Петербургѣ
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-36.jpg)  
- Конкурсный проектъ зданiя Марiинской женской гимназiи въ г. Одессѣ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-37.jpg)  
- Конкурсный проектъ зданiя Марiинской женской гимназiи въ г. Одессѣ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-38.jpg)  
- Конкурсный проектъ зданiя Марiинской женской гимназiи въ г. Одессѣ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-41.jpg)  
- Конкурсный проектъ зданiя Марiинской женской гимназiи въ г. Одессѣ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-42.jpg)  
- Конкурсный проектъ зданiя Марiинской женской гимназiи въ г. Одессѣ
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-30.jpg)
+
+Домъ-особнякъ П7П. Форостовскаго въ С.-Петербургѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-34.jpg)
+
+Фасадъ С.-Петербургской конторы Московскаго купеческаго банка
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-35.jpg)
+
+Фасадъ С.-Петербургской конторы Московскаго купеческаго банка
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-36.jpg)
+
+Конкурсный проектъ зданiя Марiинской женской гимназiи въ г. Одессѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-37.jpg)
+
+Конкурсный проектъ зданiя Марiинской женской гимназiи въ г. Одессѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-38.jpg)
+
+Конкурсный проектъ зданiя Марiинской женской гимназiи въ г. Одессѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-41.jpg)
+
+Конкурсный проектъ зданiя Марiинской женской гимназiи въ г. Одессѣ
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-42.jpg)
+
+Конкурсный проектъ зданiя Марiинской женской гимназiи въ г. Одессѣ
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-39.jpg)
 
@@ -122,50 +165,85 @@ canonical: "https://sputnikipogrom.net/culture/41117/zodchii-13/"
 
 Утвержденный проектъ музея для увѣковѣченiя памяти Генералиссимуса Князя Италiйскаго Графа Суворова Рымникскаго
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-49.jpg)  
- Конкурсный проектъ внутренней отдѣлки собора во имя Св. Александра Невскаго въ г. Ялтѣ
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-50.jpg)  
- Конкурсный проектъ внутренней отдѣлки собора во имя Св. Александра Невскаго въ г. Ялтѣ
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-49.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-51.jpg)  
- Конкурсный проектъ каменнаго театра для г. Екатеринослава
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-52.jpg)  
- Конкурсный проектъ каменнаго театра для г. Екатеринослава
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-53.jpg)  
- Конкурсный проектъ каменнаго театра для г. Екатеринослава
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-54.jpg)  
- Конкурсный проектъ каменнаго театра для г. Екатеринослава
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-55.jpg)  
- Конкурсный проектъ каменнаго театра для г. Екатеринослава
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-56.jpg)  
- Конкурсный проектъ каменнаго театра для г. Екатеринослава
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-57.jpg)  
- Конкурсный проектъ каменнаго театра для г. Екатеринослава
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-58.jpg)  
- Конкурсный проектъ каменнаго театра для г. Екатеринослава
+Конкурсный проектъ внутренней отдѣлки собора во имя Св. Александра Невскаго въ г. Ялтѣ
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-59.jpg)  
- Церковь въ с. Старожиловкѣ (Рязанской губ.)
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-60.jpg)  
- Церковь въ с. Старожиловкѣ (Рязанской губ.)
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-50.jpg)
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-62.jpg)  
- Конкурсный проектъ церкви и склепа надъ могилой В.И. Березина въ им. Соукъ-Су, близъ Гурфуза
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-63.jpg)  
- Конкурсный проектъ церкви и склепа надъ могилой В.И. Березина въ им. Соукъ-Су, близъ Гурфуза
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-64.jpg)  
- Конкурсный проектъ церкви и склепа надъ могилой В.И. Березина въ им. Соукъ-Су, близъ Гурфуза
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-65.jpg)  
- Конкурсный проектъ церкви и склепа надъ могилой В.И. Березина въ им. Соукъ-Су, близъ Гурфуза
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-66.jpg)  
- Конкурсный проектъ церкви и склепа надъ могилой В.И. Березина въ им. Соукъ-Су, близъ Гурфуза
+Конкурсный проектъ внутренней отдѣлки собора во имя Св. Александра Невскаго въ г. Ялтѣ
 
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-74.jpg)  
- Проектъ Городской думы для Нижняго Новгорода
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-75.jpg)  
- Проектъ Городской думы для Нижняго Новгорода
-- ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-76.jpg)  
- Проектъ Городской думы для Нижняго Новгорода
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-51.jpg)
+
+Конкурсный проектъ каменнаго театра для г. Екатеринослава
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-52.jpg)
+
+Конкурсный проектъ каменнаго театра для г. Екатеринослава
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-53.jpg)
+
+Конкурсный проектъ каменнаго театра для г. Екатеринослава
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-54.jpg)
+
+Конкурсный проектъ каменнаго театра для г. Екатеринослава
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-55.jpg)
+
+Конкурсный проектъ каменнаго театра для г. Екатеринослава
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-56.jpg)
+
+Конкурсный проектъ каменнаго театра для г. Екатеринослава
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-57.jpg)
+
+Конкурсный проектъ каменнаго театра для г. Екатеринослава
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-58.jpg)
+
+Конкурсный проектъ каменнаго театра для г. Екатеринослава
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-59.jpg)
+
+Церковь въ с. Старожиловкѣ (Рязанской губ.)
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-60.jpg)
+
+Церковь въ с. Старожиловкѣ (Рязанской губ.)
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-62.jpg)
+
+Конкурсный проектъ церкви и склепа надъ могилой В.И. Березина въ им. Соукъ-Су, близъ Гурфуза
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-63.jpg)
+
+Конкурсный проектъ церкви и склепа надъ могилой В.И. Березина въ им. Соукъ-Су, близъ Гурфуза
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-64.jpg)
+
+Конкурсный проектъ церкви и склепа надъ могилой В.И. Березина въ им. Соукъ-Су, близъ Гурфуза
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-65.jpg)
+
+Конкурсный проектъ церкви и склепа надъ могилой В.И. Березина въ им. Соукъ-Су, близъ Гурфуза
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-66.jpg)
+
+Конкурсный проектъ церкви и склепа надъ могилой В.И. Березина въ им. Соукъ-Су, близъ Гурфуза
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-74.jpg)
+
+Проектъ Городской думы для Нижняго Новгорода
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-75.jpg)
+
+Проектъ Городской думы для Нижняго Новгорода
+
+![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-76.jpg)
+
+Проектъ Городской думы для Нижняго Новгорода
 
 ![](https://media.sputnikipogrom.net/wp-content/uploads/2015/08/zod1901-77.jpg)
 

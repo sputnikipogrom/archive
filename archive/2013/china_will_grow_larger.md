@@ -39,4 +39,4 @@ canonical: "https://sputnikipogrom.net/russia/ua/5308/china_will_grow_larger/"
 
 Зарубежные инвестиции Китая и паутина договоров об экономическом сотрудничестве и развитии — это часть Большой Игры Китая по увеличению своего влияния в мире. Сложно сказать, насколько удачной будет её исход, но сам факт агрессивной и умелой игры внушает определённое уважение. И страх перед возможными перспективами жизни в мире, где Китай является большим, чем просто страной-фабрикой.
 
-- [![China_central_asia_infrastructure_0](https://media.sputnikipogrom.net/wp-content/uploads/2013/10/China_central_asia_infrastructure_0.jpg)](https://media.sputnikipogrom.net/wp-content/uploads/2013/10/China_central_asia_infrastructure_0.jpg)
+[![China_central_asia_infrastructure_0](https://media.sputnikipogrom.net/wp-content/uploads/2013/10/China_central_asia_infrastructure_0.jpg)](https://media.sputnikipogrom.net/wp-content/uploads/2013/10/China_central_asia_infrastructure_0.jpg)
