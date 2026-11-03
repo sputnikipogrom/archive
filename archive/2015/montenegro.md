@@ -57,4 +57,4 @@ canonical: "https://sputnikipogrom.net/politics/33401/montenegro/"
 
 Увы, позорный инцидент на футбольном матче – это не случайность, не отдельный отморозок, но логичное продолжение «цеевропеизации» Балкан, откуда Россия фактически ушла. Успокаивая себя рассказами про российское величие, мы продолжаем терять остатки влияния по всему миру, от Украины и Узбекистана до Кубы и Черногории. Мы словно бы беспутные наследники, в мотовстве пропивающие внешнеполитический капитал, который столетиями приумножали наши великие предки…
 
-[![blkn](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/blkn.jpg)](https://sputnikipogrom.net/go/balkans/)
+[![blkn](https://media.sputnikipogrom.net/wp-content/uploads/2015/03/blkn.jpg)](https://sputnikipogrom.net/go/balkany/)

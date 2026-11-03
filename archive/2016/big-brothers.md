@@ -115,7 +115,7 @@ Juan José Linz Storch de Gracia;
 
 К авторитарным политическим режимам можно отнести также военные хунты стран Северной Африки и [Ближнего Востока](https://sputnikipogrom.net/go/greatermiddleeast/) до начала череды революций «арабской весны» и военного вмешательства НАТО. Также следует выделить как разновидность авторитаризма теократические режимы, где политическая власть сконцентрирована в руках духовенства (Иран после 1978 года).
 
-[![sm2-8](https://media.sputnikipogrom.net/wp-content/uploads/2016/04/sm2-8.jpg)](https://sputnikipogrom.net/go/tech+russia/)
+[![sm2-8](https://media.sputnikipogrom.net/wp-content/uploads/2016/04/sm2-8.jpg)](https://sputnikipogrom.net/go/tech/)
 
 ## «Спасибо партии за это». Посттоталитаризм
 
